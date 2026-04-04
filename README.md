@@ -1,4 +1,4 @@
-# hello, i'm Reverie! 
+# hello, i'm KeyWhite! 
 
 this account only exists due to boredom but some things will probably be made and will also probably be added to this readme
 
