@@ -2,4 +2,8 @@
 
 this account only exists due to boredom but some repositories and other things will hopefully be made and more will also probably be added to this readme
 
+i am decent in skript and luau, im working on gdscript
+
+thats about it for now!
+
 bye bye
